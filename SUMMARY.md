@@ -3,6 +3,9 @@
 * [Introduction](README.md)
   * Overview
   * Motivation
-* [Test](test.md)
-  * [child](test/child.md)
+* Fundamentals \(start here\)
+* Intermediate: Building Versatility
+* Advanced: Becoming the Starchild
+* Ideas for Further Exploration
+* Appendices
 
