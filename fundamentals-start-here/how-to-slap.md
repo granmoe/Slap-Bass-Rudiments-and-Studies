@@ -44,5 +44,23 @@ The part of your thumb that strikes the string makes a world of difference. Hitt
 
 Practice striking your chest \(on the sternum works well since it's a flat, hard surface\) with this part of your thumb. Aim to hit your chest with the hard side edge of your thumb described above as precisely as you can. When you can consistently strike a big, flat surface with this part of your thumb, continue on to the next section.
 
+## How to Hold the Bass
 
+This is a quick refresher on how to position the bass, and left and right hand positioning. If you already know this stuff, skip ahead to the next section.
+
+## Slapping an Actual Bass String :D
+
+Before we start hitting the strings, **position your right hand just after the last fret of the bass.** This area is your point of contact on the string, which, through practice, will connect with the point of contact on your thumb.
+
+\(pic showing right hand position and highlighting area of string we aim to hit\)
+
+When the string travels down from the slap, it will strike the last fret of the bass to create the recognizable metallic "slap" sound. 
+
+\(pic\)
+
+Note that we don't want to hit the area of the string that lies over the fretboard, but this might happen when you're first starting out \(especially if you aren't used to having your right hand so close to the last fret\). This position is easiest to get a solid slap sound from, and it will be your "home" while slapping, even if you venture away from it sometimes. \(Later on in your life as a slap bassist, you can vary where exactly you strike the string in order to get different sounding articulations.\)
+
+Now recall the exercises we did above. After you have the motion going again with your thumb nice and bouncy, **practice hitting the lowest string of your bass just after the last fret with the hard edge of your thumb.**
+
+\(video\) 
 
