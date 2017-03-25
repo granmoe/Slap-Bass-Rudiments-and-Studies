@@ -64,5 +64,5 @@ Now recall the exercises we did above. After you have the motion going again wit
 
 \(video\)
 
-
+Keep practicing slapping the open E string to develop consistency. Now try slapping the A string. It's going to take time to develop the accuracy to strike the string that you want to. This will come with practice.
 
