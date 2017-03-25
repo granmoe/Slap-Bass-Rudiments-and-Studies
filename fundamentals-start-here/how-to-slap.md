@@ -64,5 +64,5 @@ Now recall the exercises we did above. After you have the motion going again wit
 
 \(video\)
 
-Keep practicing slapping the open E string to develop consistency. Now try slapping the A string for a while. Now try to slap one string, then another. It's going to take time to develop the accuracy to strike the string that you want to. This will come with practice. For now, just practice enough so that you can somewhat consistently switch back and forth between slapping the E string and the A string.
+Keep practicing slapping the open E string to develop consistency. Now try slapping the A string for a while. Now try to slap one string, then another. It's going to take time to develop the accuracy to strike the string that you want to. This will come with practice. For now, just practice enough so that you can somewhat consistently switch back and forth between slapping the E string and the A string. It takes time to build new muscle memory. **Aim small, miss small.**
 
