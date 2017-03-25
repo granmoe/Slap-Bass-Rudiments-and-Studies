@@ -54,13 +54,13 @@ Before we start hitting the strings, **position your right hand just after the l
 
 \(pic showing right hand position and highlighting area of string we aim to hit\)
 
-When the string travels down from the slap, it will strike the last fret of the bass to create the recognizable metallic "slap" sound. 
+When the string travels down from the slap, it will strike the last fret of the bass to create the recognizable metallic "slap" sound.
 
 \(pic\)
 
 Note that we don't want to hit the area of the string that lies over the fretboard, but this might happen when you're first starting out \(especially if you aren't used to having your right hand so close to the last fret\). This position is easiest to get a solid slap sound from, and it will be your "home" while slapping, even if you venture away from it sometimes. \(Later on in your life as a slap bassist, you can vary where exactly you strike the string in order to get different sounding articulations.\)
 
-Now recall the exercises we did above. After you have the motion going again with your thumb nice and bouncy, **practice hitting the lowest string of your bass just after the last fret with the hard edge of your thumb.**
+Now recall the exercises we did above. After you have the motion going again with your thumb nice and bouncy, **practice hitting the lowest string of your bass just after the last fret with the hard edge of your thumb. **Remember that hitting with any part of the side of your thumb from the knuckle to the area just above it will work well.
 
-\(video\) 
+\(video\)
 
