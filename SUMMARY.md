@@ -5,7 +5,8 @@
   * How to Use This Book
   * Overview
   * Motivation
-* Fundamentals \(start here\)
+* [Fundamentals \(start here\)](fundamentals-start-here.md)
+  * [How to slap](fundamentals-start-here/how-to-slap.md)
 * Intermediate: Building Versatility
 * Advanced: Becoming the Starchild
 * Ideas for Further Exploration
