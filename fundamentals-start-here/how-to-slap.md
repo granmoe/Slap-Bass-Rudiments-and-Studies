@@ -58,7 +58,7 @@ When the string travels down from the slap, it will strike the last fret of the 
 
 \(pic\)
 
-Note that we don't want to hit the area of the string that lies over the fretboard, but this might happen when you're first starting out \(especially if you aren't used to having your right hand so close to the last fret\). This position is easiest to get a solid slap sound from, and it will be your "home" when slapping. It's also the point where the strings have the most give in the area after the fretboard \(the most resistance is just after the saddle\).
+This position is easiest to get a solid slap sound from, and it will be your "home" when slapping. It's also the point where the strings have the most give \(in the area not lying over the fretboard\). Note that we don't want to hit the area of the string that lies over the fretboard, but this might happen when you're first starting out \(especially if you aren't used to having your right hand so close to the last fret\).
 
 Now recall the exercises we did above. After you have the motion going again with your thumb nice and bouncy, **practice hitting the lowest string of your bass just after the last fret with the hard edge of your thumb. **Remember that hitting with any part of the side of your thumb from the knuckle to the area just above it will work well.
 
