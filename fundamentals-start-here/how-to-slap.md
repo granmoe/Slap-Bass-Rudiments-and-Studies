@@ -28,7 +28,7 @@ While keeping as little tension as possible in your right hand in order to maint
 
 Continue rotating your forearm and loosen up your thumb as much as you can while maintaining its position slightly away from your hand. Experiment with moving your thumb closer and further from your hand. Feel the inertia of your thumb throughout the motion. Notice that the thumb does not move exactly in time with your hand, but lags behind a little. **This slight bounciness is what allows your thumb to quickly come off the string so that it doesn't dampen it, producing the greatest output with the least effort.** Mallet instruments, like marimba, xylophone or vibraphone, operate on this same principle.
 
-\(video of "bouncy" thumb motion\)
+\(video of bouncy thumb motion\)
 
 Also notice that if you tense up everything in your hand as much as you can, this thumb inertia decreases. Go ahead and turn your hand into concrete so nothing can move freely and notice how this feels. Now make your hand as loose as possible and continue rotating your forearm. Notice again that the "bounciness" of your thumb increases when you swing it loosely. Gradually tense your hand to go back towards the posture we practiced above. As you stabilize your fingers by curling them in, the centrifugal force of your thumb increases. Repeat this change from completely loose to holding your hand in the slap posture a few times.
 
