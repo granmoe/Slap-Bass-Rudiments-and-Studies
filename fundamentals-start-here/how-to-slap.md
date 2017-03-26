@@ -44,7 +44,7 @@ Hitting the string with the soft, fleshy part of your thumb makes it difficult t
 
 \(pic highlighting this area\)
 
-Practice striking your chest \(on the sternum works well since it's a flat, hard surface\) with this part of your thumb. Aim to hit your chest with the hard side edge of your thumb described above as precisely as you can. When you can consistently strike a big, flat surface with this part of your thumb, continue on to the next section.
+Practice striking your chest \(on the sternum works well since it's a flat, hard surface\) with this part of your thumb. Aim to hit your chest with the hard side edge of your thumb described above as precisely as you can. When you can consistently strike a big, flat surface with this part of your thumb about twice per second, continue on to the next section.
 
 ## Where to Hit the String
 
