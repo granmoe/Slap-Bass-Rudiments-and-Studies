@@ -1,10 +1,10 @@
 # Summary
 
 * [Introduction](README.md)
-  * Who This Book Is For
-  * How to Use This Book
-  * Overview
-  * Motivation
+  * [What You Should Know Before Starting This Book](who-this-book-is-for.md)
+  * [How to Use This Book](how-to-use-this-book.md)
+  * [Overview](overview.md)
+  * [Motivation](motivation.md)
 * [Fundamentals \(start here\)](fundamentals-start-here.md)
   * [How to Slap](fundamentals-start-here/how-to-slap.md)
   * How to Pop

@@ -46,12 +46,6 @@ Hitting the string with the soft, fleshy part of your thumb makes it difficult t
 
 Practice striking your chest \(on the sternum works well since it's a flat, hard surface\) with this part of your thumb. Aim to hit your chest with the hard side edge of your thumb described above as precisely as you can. When you can consistently strike a big, flat surface with this part of your thumb, continue on to the next section.
 
-## How to Hold the Bass
-
-This is a quick refresher on how to position the bass, and left and right hand positioning. If you already know this stuff, skip ahead to the next section.
-
-TODO
-
 ## Where to Hit the String
 
 Before we start hitting the strings, **position your right hand just after the last fret of the bass.** This area is your point of contact on the string, which, through practice, will connect with the point of contact on your thumb.
