@@ -56,7 +56,7 @@ Before we start hitting the strings, **position your right hand just after the l
 
 \(pic showing right hand position and highlighting area of string we aim to hit\)
 
-When the string travels down from the slap, it will strike the last fret of the bass to create the recognizable metallic "slap" sound.
+When the string travels down from the slap, it will strike the last fret of the bass to create the recognizable, metallic "slap" sound.
 
 \(pic\)
 
