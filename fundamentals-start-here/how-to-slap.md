@@ -22,7 +22,7 @@ Let your thumb hang out comfortably a little ways from your hand. There should b
 
 > Wrist straight, rotate the forearm, swing thumb loosely
 
-While keeping as little tension as possible in your right hand in order to maintain the posture described above, **begin rotating your forearm through its full range of motion**, back and forth, so that your palm faces towards you at the start of the rotation and away from you at the end. Remember to keep your wrist straight. Keep things loose, keep your thumb stuck out slightly from your hand, but otherwise **let your whole thumb move freely.**
+While keeping as little tension as possible in your right hand in order to maintain the posture described above, **begin rotating your forearm through its full range of motion**, back and forth, like you're turning a door handle or screwing in a lightbulb, so that your palm faces towards you at the start of the rotation and away from you at the end. Remember to keep your wrist straight. Keep things loose, keep your thumb stuck out slightly from your hand, but otherwise **let your whole thumb move freely.**
 
 \(video of "crude" forearm rotation\)
 
