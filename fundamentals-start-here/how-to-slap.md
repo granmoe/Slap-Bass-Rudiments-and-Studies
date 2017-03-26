@@ -48,6 +48,8 @@ Practice striking your chest \(on the sternum works well since it's a flat, hard
 
 This is a quick refresher on how to position the bass, and left and right hand positioning. If you already know this stuff, skip ahead to the next section.
 
+TODO
+
 ## Slapping an Actual Bass String :D
 
 Before we start hitting the strings, **position your right hand just after the last fret of the bass.** This area is your point of contact on the string, which, through practice, will connect with the point of contact on your thumb.
