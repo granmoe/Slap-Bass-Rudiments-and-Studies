@@ -62,7 +62,7 @@ When the string travels down from the slap, it will strike the last fret of the 
 
 \(pic\)
 
-Now recall the exercises we did above. After you have the motion going again with your thumb nice and bouncy, **practice hitting the lowest string of your bass just after the last fret with the hard edge of your thumb. **Remember that hitting with any part of the side of your thumb from the knuckle to the area just above it will work well.
+Now recall the exercises we did above. After you have the motion going again with your thumb nice and bouncy, **practice hitting the lowest string of your bass just after the last fret with the hard edge of your thumb. **Aim to contact the string as close to your thumb joint as possible, but keep up the speed of your wrist rotation even though you'll miss the string sometimes.
 
 \(video\)
 
