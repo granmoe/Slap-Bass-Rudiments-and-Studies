@@ -2,7 +2,7 @@
 
 ## Right Hand Posture
 
-> Fingers curled under in a "C," thumb held out, minimal tension
+> Fingers curled under comfortably in a "C," thumb held out slightly, minimal tension
 
 Hold your hand so that your palm is facing the ground with your hand open. Make sure there is no bend in your wrist, so that your hand is in a straight line with your forearm.
 
