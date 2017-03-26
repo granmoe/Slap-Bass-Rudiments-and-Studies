@@ -22,11 +22,11 @@ Aim for a gap of about 30º to 45º. You'll dial in this position over time base
 
 > Wrist straight, rotate the forearm, swing thumb loosely
 
-While keeping as little tension as possible in your right hand in order to maintain the posture described above, begin rotating your forearm through its full range of motion, back and forth. Remember to keep your wrist straight. Although you need a little tension to keep your thumb held out from your hand, **your base thumb joint \(where it connects to your hand\) should be completely loose.**
+While keeping as little tension as possible in your right hand in order to maintain the posture described above, begin rotating your forearm through its full range of motion, back and forth. Remember to keep your wrist straight. Although you need a little tension to keep your thumb held out from your hand, **your base thumb joint \(where it connects to your hand\) should move freely.**
 
 \(video of "crude" forearm rotation\)
 
-Continue rotating your forearm and loosen up your thumb as much as you can while maintaining its position slightly away from your hand. Feel the motion of your thumb. Notice that the thumb does not move exactly in time with your hand, but lags behind a little. **This slight "bounciness" is what allows your thumb to quickly bounce off the string so that it doesn't dampen it, producing the greatest output with the least effort.** Mallet instruments, like marimba, xylophone or vibraphone, operate on this same principle.
+Continue rotating your forearm and loosen up your thumb as much as you can while maintaining its position slightly away from your hand. Experiment with moving your thumb closer and further from your hand. Feel the inertia of your thumb throughout the motion. Notice that the thumb does not move exactly in time with your hand, but lags behind a little. **This slight "bounciness" is what allows your thumb to quickly come off the string so that it doesn't dampen it, producing the greatest output with the least effort.** Mallet instruments, like marimba, xylophone or vibraphone, operate on this same principle.
 
 \(video of "bouncy" thumb motion\)
 
