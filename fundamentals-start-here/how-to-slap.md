@@ -30,7 +30,7 @@ Continue rotating your forearm and loosen up your thumb as much as you can while
 
 \(video of "bouncy" thumb motion\)
 
-Now notice that if you tense up everything in your hand as much as you can, this thumb inertia decreases. Go ahead and turn your hand into concrete and notice how this feels. Now go back to the loose hand posture. Notice again that the "bounciness" of your thumb increases when you swing it loosely. Pay attention to the point at which your thumb starts retracting back to the starting position. **The point just before this retraction is where your thumb has the most momentum to impart to the string.** If you're doing this right, then when you stop your forearm rotation at the end of its range of motion \(don't retract it back to the starting position\), your thumb should bounce a few times.
+Also notice that if you tense up everything in your hand as much as you can, this thumb inertia decreases. Go ahead and turn your hand into concrete and notice how this feels. Now go back to the loose hand posture. Notice again that the "bounciness" of your thumb increases when you swing it loosely. Pay attention to the point at which your thumb starts retracting back to the starting position. **The point just before this retraction is where your thumb has the most momentum to impart to the string.** If you're doing this right, then when you stop your forearm rotation at the end of its range of motion \(don't retract it back to the starting position\), your thumb should bounce a few times.
 
 \(video of thumb bouncing when motion is stopped\)
 
