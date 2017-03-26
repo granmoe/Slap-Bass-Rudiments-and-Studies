@@ -16,7 +16,7 @@ From this position of minimal tension in the hand, pull your thumb back slightly
 
 \(aerial pic\)
 
-Aim for a gap of slightly more than 45º. You'll dial in this position over time based on what's most effective for you.
+Aim for a gap of about 30º to 45º. You'll dial in this position over time based on what's most effective for you. Just don't leave your thumb laying flat against your hand, or sticking way out at a 90º angle.
 
 ## Forearm and Thumb Motion
 
