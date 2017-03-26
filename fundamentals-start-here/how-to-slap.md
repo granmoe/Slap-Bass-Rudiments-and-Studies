@@ -24,7 +24,7 @@ Let your thumb hang out comfortably a little ways from your hand. There should b
 
 While keeping as little tension as possible in your right hand in order to maintain the posture described above, **begin rotating your forearm through its full range of motion**, back and forth, like you're turning a door handle or screwing in a lightbulb, so that your palm faces towards you at the start of the rotation and away from you at the end. Remember to keep your wrist straight. Keep things loose, keep your thumb stuck out slightly from your hand, but otherwise **let your whole thumb move freely.**
 
-\(video of "crude" forearm rotation\)
+\(video of crude forearm rotation\)
 
 Continue rotating your forearm and loosen up your thumb as much as you can while maintaining its position slightly away from your hand. Experiment with moving your thumb closer and further from your hand. Feel the inertia of your thumb throughout the motion. Notice that the thumb does not move exactly in time with your hand, but lags behind a little. **This slight bounciness is what allows your thumb to quickly come off the string so that it doesn't dampen it, producing the greatest output with the least effort.** Mallet instruments, like marimba, xylophone or vibraphone, operate on this same principle.
 
