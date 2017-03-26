@@ -52,17 +52,19 @@ This is a quick refresher on how to position the bass, and left and right hand p
 
 TODO
 
-## Slapping an Actual Bass String :D
+## Where to Hit the String
 
 Before we start hitting the strings, **position your right hand just after the last fret of the bass.** This area is your point of contact on the string, which, through practice, will connect with the point of contact on your thumb.
 
 \(pic showing right hand position and highlighting area of string we aim to hit\)
 
-This area of the string is easiest to get a solid slap sound from, and it will be your "home" when slapping. It's also the point where the strings have the most give \(in the area not lying over the fretboard\). Note that we don't want to hit the area of the string that lies over the fretboard, but this might happen when you're first starting out \(especially if you aren't used to having your right hand so close to the last fret\).
-
 When the string travels down from the slap, it will strike the last fret of the bass to create the recognizable, metallic "slap" sound.
 
-\(pic\)
+\(pic and/or slow mo video\)
+
+This area of the string is easiest to get a solid slap sound from, and it will be your "home" when slapping. It's also the point where the strings have the most give \(in the area not lying over the fretboard\). Note that we typically don't want to hit the area of the string that lies over the fretboard, but this might happen when you're first starting out \(especially if you aren't used to having your right hand so close to the last fret\).
+
+## Slapping an Actual Bass String :D
 
 Now recall the exercises we did above. After you have the motion going again with your thumb nice and bouncy, **practice hitting the lowest string of your bass just after the last fret with the hard edge of your thumb. **Aim to contact the string close to your thumb joint, but keep up the speed of your wrist rotation even though you'll miss the string sometimes.
 
