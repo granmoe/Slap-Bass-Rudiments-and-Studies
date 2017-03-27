@@ -4,7 +4,7 @@
 
 > Fingers curled under comfortably in a "C," thumb held out slightly, minimal tension
 
-Hold your hand so that your palm is facing the ground with your hand open. Make sure there is no bend in your wrist, so that your hand is in a straight line with your forearm.
+Hold your hand so that your palm is facing the ground with your hand open. Keep your hand and wrist in a straight line with your forearm.
 
 \(pic\)
 
