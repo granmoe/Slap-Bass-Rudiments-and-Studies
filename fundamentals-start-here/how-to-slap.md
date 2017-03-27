@@ -16,7 +16,7 @@ Pull your thumb back slightly to create a gap between your thumb and hand.
 
 \(aerial pic\)
 
-Let your thumb hang out comfortably a little ways from your hand. There should be a gap of about 30º to 45º between your thumb and hand, but you'll dial in this position over time based on what's most effective for you. Just don't leave your thumb laying flat against your hand, or sticking way out at a 90º angle.
+Let your thumb hang out comfortably a little ways from your hand. There should be a gap of about 30º to 45º between your thumb and hand, but you'll dial in this position over time based on what's most effective for you.
 
 ## Forearm and Thumb Motion
 
