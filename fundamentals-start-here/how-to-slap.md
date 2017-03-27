@@ -12,7 +12,7 @@ Now curl your fingers slightly, so that they're resting in a comfortable "C" sha
 
 \(picture from the side\)
 
-Move your thumb a little ways away from hand, to create a gap between your thumb and hand.
+Move your thumb a little ways away from hand, to create a gap of roughly 30º-45º between your thumb and hand.
 
 \(aerial pic\)
 
