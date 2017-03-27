@@ -16,7 +16,7 @@ Move your thumb a little ways away from hand, while staying comfortable, to crea
 
 \(aerial pic\)
 
-There should be a gap of about 30º to 45º between your thumb and hand, but you'll dial in this position over time based on what's most effective for you.
+Don't worry about matching the pictures exactly. You'll dial in this position over time based on what's most effective for you.
 
 ## Forearm and Thumb Motion
 
