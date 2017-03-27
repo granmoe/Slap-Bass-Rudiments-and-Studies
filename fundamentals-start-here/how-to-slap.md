@@ -16,7 +16,7 @@ Move your thumb a little ways away from your hand, to create a gap of roughly 30
 
 \(aerial pic\)
 
-Don't worry about matching the pictures exactly. You'll dial in this position over time based on what's most effective for you. Above all, this posture should require minimal tension and be very comfortable.
+Don't worry about matching the pictures exactly. You'll dial in this position over time based on what's most effective for you. Above all, this posture should require minimal tension and feel comfortable.
 
 ## Forearm and Thumb Motion
 
