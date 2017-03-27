@@ -8,7 +8,7 @@ Hold your hand so that your palm is facing the ground with your hand open. Keep 
 
 \(pic\)
 
-Now curl your fingers slightly, so that they're in a comfortable "C" shape. This should require very little tension.
+Now curl your fingers slightly, so that they're resting in a comfortable "C" shape.
 
 \(picture from the side\)
 
