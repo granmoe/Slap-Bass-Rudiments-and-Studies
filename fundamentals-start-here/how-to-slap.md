@@ -26,7 +26,7 @@ While maintaining the posture described above, **begin rotating your forearm thr
 
 \(video of crude forearm rotation\)
 
-Continue rotating your forearm and loosen up your thumb as much as you can while maintaining its position slightly away from your hand. Experiment with moving your thumb closer and further from your hand. Feel the inertia of your thumb throughout the motion. Notice that the thumb does not move exactly in time with your hand, but lags behind a little. **This slight bounciness is what allows your thumb to quickly come off the string so that it doesn't dampen it, producing the greatest output with the least effort.** Mallet instruments, like marimba, xylophone or vibraphone, operate on this same principle. Pretend your thumb is just a mallet duct taped to your hand or a prosthetic attached to an artificial joint.
+Continue rotating your forearm and loosen up your thumb as much as you can while maintaining its position slightly away from your hand. Experiment with moving your thumb closer and further from your hand. Feel the inertia of your thumb throughout the motion. Notice that the thumb does not move exactly in time with your hand, but lags behind a little. **This slight bounciness is what allows your thumb to quickly come off the string so that it doesn't dampen it, producing the greatest output with the least effort.** Mallet instruments, like marimba, xylophone or vibraphone, operate on this same principle. Pretend your thumb is just a mallet duct taped to your hand or a prosthetic attached to a synthetic joint.
 
 \(video of bouncy thumb motion\)
 
