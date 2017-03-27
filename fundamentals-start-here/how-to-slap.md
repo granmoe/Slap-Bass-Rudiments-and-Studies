@@ -12,7 +12,7 @@ Now curl your fingers slightly, so that they're resting in a comfortable "C" sha
 
 \(picture from the side\)
 
-From this position of minimal tension in the hand, pull your thumb back slightly to create a gap between your thumb and hand.
+Pull your thumb back slightly to create a gap between your thumb and hand.
 
 \(aerial pic\)
 
