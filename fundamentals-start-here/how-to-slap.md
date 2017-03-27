@@ -12,11 +12,11 @@ Now curl your fingers slightly, so that they're resting in a comfortable "C" sha
 
 \(picture from the side\)
 
-Move your thumb a little ways away from hand, to create a gap of roughly 30º-45º between your thumb and hand.
+Move your thumb a little ways away from your hand, to create a gap of roughly 30º-45º between your thumb and hand.
 
 \(aerial pic\)
 
-Don't worry about matching the pictures exactly. You'll dial in this position over time based on what's most effective for you.
+Don't worry about matching the pictures exactly. You'll dial in this position over time based on what's most effective for you. This posture should require minimal tension and be very comfortable.
 
 ## Forearm and Thumb Motion
 
