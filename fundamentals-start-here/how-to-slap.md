@@ -60,7 +60,7 @@ This area of the string is easiest to get a solid slap sound from, and it will b
 
 ## Slapping an Actual Bass String :D
 
-Now recall the exercises we did above. After you have the motion going again with your thumb nice and bouncy, **practice hitting the lowest string of your bass just after the last fret with the hard edge of your thumb. **Aim to contact the string close to your thumb joint, but keep up the speed of your wrist rotation even though you'll miss the string sometimes.
+Now recall the exercises we did above. After you have the motion going again with your thumb nice and bouncy, **practice hitting the lowest string of your bass just after the last fret with the hard edge of your thumb. **Aim to contact the string close to your thumb joint, but keep up the speed of your forearm rotation even though you'll miss the string sometimes. Keep your wrist straight and your thumb loose.
 
 \(video\)
 
