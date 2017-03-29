@@ -44,7 +44,7 @@ In short, your forearm rotation is the engine, and your thumb is a mallet. This 
 
 \(pic highlighting this area\)
 
-Practice striking a large, flat surface \(a table will work well\) with this part of your thumb. Try to hit it with the hard side edge of your thumb described above as precisely as you can. Maintain the basic hand posture and use only forearm rotation to swing your thumb. When you can consistently strike a big, flat surface with this part of your thumb about twice per second, continue on to the next section.
+Practice striking a large, flat surface \(a table will work well\) with this part of your thumb. Try to hit it with the hard side edge of your thumb described above as precisely as you can. Maintain the basic hand posture, and use only forearm rotation to swing your thumb. When you can consistently strike a big, flat surface with this part of your thumb about twice per second, continue on to the next section.
 
 ## Where to Hit the String
 
