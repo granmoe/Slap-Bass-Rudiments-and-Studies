@@ -40,7 +40,7 @@ In short, your forearm rotation is the engine, and your thumb is a mallet. This 
 
 ## Point of Contact
 
-Hitting the string with the soft, fleshy part of your thumb makes it difficult to get a loud, clear slap. **Aim to strike with the side of the thumb, anywhere on or near the side of the thumb joint. **This is another fine point of technique that you'll have to dial in over time. For now, just don't get too far away from the thumb joint.
+**Aim to strike with the side of the thumb, anywhere on or near the side of the thumb joint. **This is another fine point of technique that you'll have to dial in over time. For now, just don't get too far away from the thumb joint.
 
 \(pic highlighting this area\)
 
