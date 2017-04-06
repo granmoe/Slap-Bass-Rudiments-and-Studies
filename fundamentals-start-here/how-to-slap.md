@@ -30,7 +30,9 @@ Continue rotating your forearm and loosen up your thumb as much as you can while
 
 \(video of bouncy thumb motion\)
 
-Now let's experiment with this motion a little. Notice that if you lock, this thumb bounciness decreases and instead your hand and thumb rotate in sync. Now make your hand as loose as possible and continue rotating your forearm. Notice again that the bounciness of your thumb increases when you swing it loosely. Gradually tense your hand to go back towards the posture we practiced above. As you stabilize your fingers by curling them in, the centrifugal force of your thumb increases. Repeat this change from completely loose to holding your hand in the slap posture a few times.
+Now let's experiment with this motion a little. Notice that if you force your thumb to stay fixed in relation to your hand, this thumb bounciness decreases and instead your hand and thumb rotate in sync. Now make your hand as loose as possible and continue rotating your forearm. Notice again that the bounciness of your thumb increases when you swing it loosely. Gradually move your hand to go back towards the posture we practiced above. As you stabilize your fingers by curling them in, the centrifugal force of your thumb increases. Repeat this change from completely loose to holding your hand in the slap posture a few times.
+
+## Moment of Impact
 
 Now pay attention to the point at which your thumb starts retracting back to the starting position. **The point just before this retraction is where your thumb has the most force to impart to the string.** If you're doing this right, then when you stop your forearm rotation at the end of its range of motion without retracting back to the starting position, your thumb should bounce a few times.
 
