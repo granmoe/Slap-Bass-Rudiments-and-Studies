@@ -78,5 +78,5 @@ Also note the distance of my hand from the bass strings and the complete absence
 
 Resist the temptation to swing your whole arm at the string. All the force should come from your forearm rotation swinging your thumb.
 
-Keep practicing slapping the open E string to develop consistency. Now try slapping the A string for a while. Next try to slap one string, then another in tempo. It's going to take time to develop the accuracy to strike the string that you want to. This will come with practice. For now, just practice enough so that you can somewhat consistently switch back and forth between slapping the E string and the A string. It takes time to build new muscle memory. **"Aim small, miss small."**
+Keep practicing slapping the open E string \(or open B, if you're using a 5-string\) to develop consistency. Now try slapping the A string for a while. Next try to slap one string, then another in tempo. It's going to take time to develop the accuracy to strike the string that you want to. This will come with practice. For now, just practice enough so that you can somewhat consistently switch back and forth between slapping the E string and the A string. It takes time to build new muscle memory. **"Aim small, miss small."**
 
