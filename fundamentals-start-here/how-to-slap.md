@@ -80,3 +80,9 @@ Resist the temptation to swing your whole arm at the string. All the force shoul
 
 Keep practicing slapping the open E string \(or open B, if you're using a 5-string\) to develop consistency. Now try slapping the A string for a while. Next try to slap one string, then another in tempo. It's going to take time to develop the accuracy to strike the string that you want to. This will come with practice. For now, just practice enough so that you can somewhat consistently switch back and forth between slapping the E string and the A string. It takes time to build new muscle memory. **"Aim small, miss small."**
 
+## Final Note
+
+There are wide range of ways to slap, and you will refine and evolve your own interpretation over time. Nothing in here is meant to be taken as the one "right" way to do it. This is just one starting point. Also note that we are exaggerating all of the motions in order to make it easier to learn. For example, over time, your forearm rotation will get much smaller and more efficient.
+
+
+
