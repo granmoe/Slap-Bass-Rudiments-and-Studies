@@ -4,11 +4,11 @@
 
 > Wrist straight, fingers curled under comfortably in a "C," thumb held out slightly, minimal tension
 
-Hold your hand so that your palm is facing the ground with your hand open. Keep your hand and wrist in a straight line with your forearm.
+Hold your hand so that your palm is facing the ground with your hand open. Keep your hand and wrist in a straight line with your forearm. Let your fingers and thumb go completely limp.
 
 \(pic\)
 
-Now curl your fingers slightly, so that they're resting in a comfortable "C" shape.
+Now pull your fingers up and curl them under just slightly, so that they're resting in a comfortable "C" shape.
 
 \(picture from the side\)
 
