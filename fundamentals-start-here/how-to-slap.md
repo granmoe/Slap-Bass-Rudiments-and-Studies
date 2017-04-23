@@ -38,7 +38,7 @@ Now pay attention to the point at which your thumb starts retracting back to the
 
 \(video of thumb bouncing when motion is stopped\)
 
-To summarize these last two sections, your forearm rotation is the engine, and your thumb is a mallet. This forearm and thumb motion is the core of slap bass technique. Developing speed and coordination with this movement takes time. I recommend practicing it until you can do about two full rotations per second before moving on.
+To summarize these last two sections, your forearm rotation is the engine, and your thumb is a mallet. This forearm and thumb motion is the core of slap bass technique. Developing speed and coordination with this movement takes time. For now, just focus on consistency.
 
 ## Point of Contact
 
@@ -46,7 +46,7 @@ To summarize these last two sections, your forearm rotation is the engine, and y
 
 \(pic highlighting this area\)
 
-Practice striking a large, flat surface \(a table will work well\) with this part of your thumb. Try to hit it with the hard side edge of your thumb described above as precisely as you can. Maintain the basic hand posture, and use only forearm rotation to swing your thumb. When you can consistently strike a big, flat surface with this part of your thumb about twice per second, continue on to the next section.
+Practice striking a large, flat surface \(a table will work well\) with this part of your thumb. Try to hit it with the hard side edge of your thumb described above as precisely as you can. Maintain the basic hand posture, and use only forearm rotation to swing your thumb. When you can consistently strike a big, flat surface with this part of your thumb, continue on to the next section.
 
 ## Where to Hit the String
 
