@@ -58,7 +58,7 @@ When the string travels down from the slap, it will strike the last fret of the 
 
 \(pic and/or slow mo video\)
 
-This area of the string is easiest to get a solid slap sound from, and it will be your home when slapping. It's also the point where the strings have the least resistance to moving towards the fretboard \(in the area not lying over the fretboard\). Note that we don't want to hit the area of the string that lies over the fretboard, but this might happen when you're first starting out.
+This area of the string is easiest to get a solid slap sound from, and it will be your home when slapping. It's also the point where the strings have the least resistance to moving towards the fretboard \(in the area not lying over the fretboard\). Note that for now we want to avoid hitting the area of the string that lies over the fretboard.
 
 ## Slapping an Actual Bass String :D
 
