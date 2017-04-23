@@ -38,7 +38,7 @@ Now pay attention to the point at which your thumb starts retracting back to the
 
 \(video of thumb bouncing when motion is stopped\)
 
-To summarize these last two sections, your forearm rotation is the engine, and your thumb is a mallet. This forearm and thumb motion is the core of slap bass technique. Developing speed and coordination with this movement takes time. For now, just focus on consistency.
+To summarize these last two sections, your forearm rotation is the engine, and your thumb is a mallet. This forearm and thumb motion is the core of slap bass technique. Developing speed and coordination with this movement takes time. For now, just focus on consistently executing the basic motion.
 
 ## Point of Contact
 
