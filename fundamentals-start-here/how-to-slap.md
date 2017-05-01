@@ -12,7 +12,7 @@ Now pull your fingers up and curl them under just slightly, so that they're rest
 
 \(picture from the side\)
 
-Move your thumb a little ways away from your hand, to create a gap of roughly 30º-45º between your thumb and hand.
+There should be a small gap between your thumb and hand.
 
 \(aerial pic\)
 
