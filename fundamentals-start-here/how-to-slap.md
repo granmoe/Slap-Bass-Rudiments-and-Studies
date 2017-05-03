@@ -16,7 +16,7 @@ There should be a small gap between your thumb and hand.
 
 \(aerial pic\)
 
-Don't worry about matching the pictures exactly. You'll dial in this position over time based on what's most effective for you. Above all, this posture should require minimal tension and feel comfortable.
+Don't worry about matching the pictures exactly. You'll dial in this position over time based on what's most effective for you given your particular physical attributes. Above all, this posture should require minimal tension and feel comfortable.
 
 ## Forearm and Thumb Motion
 
