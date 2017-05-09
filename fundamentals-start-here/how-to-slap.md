@@ -2,7 +2,7 @@
 
 ## Right Hand Posture
 
-> Wrist straight, fingers curled under comfortably in a "C," thumb held out slightly, minimal tension
+> Wrist straight, fingers curled under comfortably in a "C," thumb out slightly, minimal tension
 
 Hold your hand so that your palm is facing the ground with your hand open. Keep your hand and wrist in a straight line with your forearm. Let your fingers and thumb go completely limp.
 
