@@ -7,7 +7,7 @@
   * [Motivation](motivation.md)
 * [Fundamentals \(start here\)](fundamentals-start-here.md)
   * [How to Slap](fundamentals-start-here/how-to-slap.md)
-  * How to Pop
+  * [How to Pop](fundamentals-start-here/how-to-pop.md)
 * Intermediate: Building Versatility
 * Advanced: Becoming the Starchild
 * Ideas for Further Exploration
