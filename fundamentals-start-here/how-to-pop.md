@@ -20,7 +20,5 @@ One caveat: it's much easier to do this consistently and develop the right feel 
 
 ## Transitioning Between Slap and Pop
 
-Mixing slaps and pops is, in a general way, the core of most of the material in this book.
-
-
+Mixing slaps and pops is key to the material in this book.
 
