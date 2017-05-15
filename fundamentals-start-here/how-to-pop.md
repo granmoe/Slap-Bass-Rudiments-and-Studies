@@ -1,6 +1,6 @@
 # How to Pop
 
-## Finger position
+## Finger Position
 
 > Pull the fingerpad up and through the string
 
@@ -17,4 +17,10 @@ Now rotate your wrist back and allow your fingertip to pull up and through the s
 One caveat: it's much easier to do this consistently and develop the right feel if you practice popping fretted notes only at first \(especially if the action on your bass is very high--it should be low for slap/pop!\). Popping the open strings feels different due to the string having much less resistance \(on most basses, depends on setup\), and it takes some finesse. Once you have the basic technique down on fretted notes, practice popping the open strings. Then practice popping up and down the fretboard, and mixing in open string pops.
 
 \(video\)
+
+## Transitioning Between Slap and Pop
+
+Mixing slaps and pops is, in a general way, the core of most of the material in this book.
+
+
 
