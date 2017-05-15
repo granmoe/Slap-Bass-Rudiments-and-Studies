@@ -8,3 +8,5 @@ Take a look at this drill:
 
 \(instructions\)
 
+\(video and audio examples of this being used in old funk tunes\)
+
