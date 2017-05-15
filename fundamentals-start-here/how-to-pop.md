@@ -18,7 +18,9 @@ One caveat: it's much easier to do this consistently and develop the right feel 
 
 \(video\)
 
-## Transitioning Between Slap and Pop
+## That's It!
 
-Mixing slaps and pops is key to the material in this book.
+When you feel comfortable getting consistent slaps and pops in isolation, move on to the next part of this book. And congratulations! You've put the time and work in to develop the two most fundamental techniques of slap bass.
+
+
 

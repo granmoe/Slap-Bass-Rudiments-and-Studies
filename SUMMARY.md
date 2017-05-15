@@ -8,6 +8,7 @@
 * [Fundamentals \(start here\)](fundamentals-start-here.md)
   * [How to Slap](fundamentals-start-here/how-to-slap.md)
   * [How to Pop](fundamentals-start-here/how-to-pop.md)
+  * [The Primal Slap Rudiment](fundamentals-start-here/the-primal-slap-rudiment.md)
 * Intermediate: Building Versatility
 * Advanced: Becoming the Starchild
 * Ideas for Further Exploration
