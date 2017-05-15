@@ -4,7 +4,7 @@
 
 > Pull the fingerpad up and through the string
 
-Put your index finger's fingertip against the string, and curl it under the string slightly. You don't have to hook under the string very much in order to get the sound, but you can do so if it's easier to start that way. As with the slap technique, minimizing our tension and movement will allow for the most efficiency and speed in the long term.
+Put your index finger's fingertip against the string, and curl it under the string slightly. Aim to have the string lie across approximately the middle of your fingertip.
 
 \(pic\)
 
