@@ -5,9 +5,10 @@
   * [How to Use This Book](how-to-use-this-book.md)
   * [Overview](overview.md)
   * [Motivation](motivation.md)
-* [Fundamentals \(start here\)](fundamentals-start-here.md)
+* [How to Slap and Pop](how-to-slap.md)
   * [How to Slap](fundamentals-start-here/how-to-slap.md)
   * [How to Pop](fundamentals-start-here/how-to-pop.md)
+* [Fundamentals \(start here if you can already slap\)](fundamentals-start-here.md)
   * [The Primal Slap Rudiment](fundamentals-start-here/the-primal-slap-rudiment.md)
 * Intermediate: Building Versatility
 * Advanced: Becoming the Starchild
