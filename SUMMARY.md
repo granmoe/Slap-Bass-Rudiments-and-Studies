@@ -11,7 +11,7 @@
 * [Fundamentals \(start here if you can already slap\)](fundamentals-start-here.md)
   * [The Primal Slap Rudiment](fundamentals-start-here/the-primal-slap-rudiment.md)
 * Intermediate: Building Versatility
-* Advanced: Becoming the Starchild
+* [Advanced: Exploring Your Boundaries](advanced-becoming-the-starchild.md)
 * Ideas for Further Exploration
 * [Appendices](appendices.md)
   * [Duple Rudiments](appendices/basic-rudiments.md)
