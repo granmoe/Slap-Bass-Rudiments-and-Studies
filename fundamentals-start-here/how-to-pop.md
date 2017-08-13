@@ -10,7 +10,7 @@ Put your index finger's fingertip against the string, and curl it under the stri
 
 ## Movement
 
-Now rotate your wrist back and allow your fingertip to pull up and through the string, pulling the string up along with it for a little ways before it releases. Pull the string up enough so that you can feel a good amount of resistance. This is what makes it forcefully slap back down against the frets. Notice that if you pull the string up as little as you can, it won't make the pop sound. Now try exaggerating the motion and pulling it up extremely far. There's a point at which you get the slap sound. Keep experimenting and pay attention to how far you have to pull the string up to get a pop sound. This will differ slightly based on your bass's action, scale length and string gauges.
+Now rotate your wrist back and up towards your face, turning your palm away from you and allowing your fingertip to pull up and through the string. Pull the string up for a little ways before releasing it. Wait until you feel a noticeable amount of resistance before releasing the string. This is what makes it forcefully slap back down against the frets. Notice that if you pull the string up as little as you can, it won't make the pop sound. Now try exaggerating the motion and pulling it up extremely far. There's a point at which you start to get a good pop sound. Keep experimenting and pay attention to how far you have to pull the string up and how much resistance you feel when you get a pop sound. This will differ slightly based on your bass's action, scale length and string gauges.
 
 \(video\)
 
@@ -21,6 +21,4 @@ One caveat: it's much easier to do this consistently and develop the right feel 
 ## That's It!
 
 When you feel comfortable getting consistent slaps and pops in isolation, move on to the next part of this book. And congratulations! You've put the time and work in to develop the two most fundamental techniques of slap bass.
-
-
 
