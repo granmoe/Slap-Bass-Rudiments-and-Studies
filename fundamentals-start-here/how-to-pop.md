@@ -14,7 +14,7 @@ Now rotate your wrist back and up towards your face, turning your palm away from
 
 \(video\)
 
-One caveat: it's much easier to do this consistently and develop the right feel if you practice popping fretted notes only at first \(especially if the action on your bass is very high--it should be low for slap/pop!\). Popping the open strings feels different due to the string having much less resistance \(on most basses, depends on setup\), and it takes some finesse. Once you have the basic technique down on fretted notes, practice popping the open strings. Then practice popping up and down the fretboard, and mixing in open string pops.
+One caveat: it's much easier to do this consistently and develop the right feel if you practice popping fretted notes only at first \(especially if the action on your bass is very high--it should be low for slap/pop!\). Popping the open strings feels different due to the string having much less resistance \(on most basses, but this depends on setup\), and it takes some finesse. Once you have the basic technique down on fretted notes, practice popping the open strings. Then practice popping up and down the fretboard and mixing in open string pops.
 
 \(video\)
 
